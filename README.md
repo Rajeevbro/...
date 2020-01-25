@@ -27,7 +27,7 @@ Picture source: [1.](https://www.kailashjourneys.com/wp-content/uploads/2017/03/
 1. Paragaliding
 1. Jungle safari
 1. Mountain climbing
-1.Visiting cultural sites and many more
+1. Visiting cultural sites and many more
 
 
 
